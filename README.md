@@ -1,0 +1,1 @@
+# Consultar-CNPJ-Verificar-Simples-Nacional-
